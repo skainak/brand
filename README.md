@@ -1,5 +1,5 @@
 ## Branding
-### Skaina Project Branding
+### Skaina Project Brand
 
 © 2025 Skaina. All rights reserved.
 
