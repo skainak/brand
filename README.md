@@ -1,2 +1,2 @@
-# branding
+# brand
 Skaina Project Branding
